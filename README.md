@@ -1,2 +1,0 @@
-# yzealol.github.io
-yo
